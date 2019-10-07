@@ -1,2 +1,0 @@
-# salukvadze irakli
-satesto gverdi
